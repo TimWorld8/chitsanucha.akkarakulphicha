@@ -1,1 +1,0 @@
-# chitsanucha.akkarakulphicha
